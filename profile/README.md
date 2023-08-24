@@ -8,5 +8,5 @@ Zajmujemy się wykonywaniem stron internetowych od samego projektu (wizualizacja
 
 https://discord.gg/gYRu3xvgHz
 
-patryk@spacecode.pl
+kontakt@spacecode.pl
 
